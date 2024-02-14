@@ -1,1 +1,1 @@
-![Alt Text](https://i.imgur.com/a/P12PUCH.png)
+<a href="https://imgur.com/a/P12PUCH"><img src="https://imgur.com/a/P12PUCH.png" alt="speech" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
