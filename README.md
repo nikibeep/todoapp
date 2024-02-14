@@ -1,1 +1,1 @@
-<a href="https://imgur.com/a/P12PUCH.png"><img src="https://imgur.com/a/P12PUCH.png" alt="served" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
+<blockquote class="imgur-embed-pub" lang="en" data-id="a/P12PUCH" data-context="false" ><a href="//imgur.com/a/P12PUCH"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
